@@ -1,0 +1,1 @@
+C.O.C.K. Stands for Canadian Organization of Coding Knowledge, we specialize in making open source, free to use apps, games, addons, and other applications. You can find all of our apps and our community here: https://discord.gg/D4rxG3rYdr
